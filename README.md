@@ -1,2 +1,2 @@
-# Late-Night-Snack
-The year is 2020  and the Coronavirus Pandemic is wreaking havoc across the world. George Hendrix just got laid off from his job at the bookstore and is now working as a food delivery worker just trying to pay his way through school. Unfortunately, life comes at him fast and he has to go through a series of hurdles just to get through his shift. 
+# Late-Night-Snack (Video Game)
+The year is 2020  and the Coronavirus Pandemic is wreaking havoc across the world. George Hendrix just got laid off from his job at the bookstore and is now working as a food delivery worker just trying to pay his way through school. Unfortunately, life comes at him fast and he is faced with the challenge of having to go through a series of hurdles just to get through his shift. 
